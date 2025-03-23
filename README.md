@@ -1,1 +1,0 @@
-# MobileOne_VerifIdade
